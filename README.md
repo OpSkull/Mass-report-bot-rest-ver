@@ -1,1 +1,2 @@
 # Mass-report-bot-rest-ver
+MASS REPORT BOT FUCK PPL IN THE ASS AND GET HIT WITH A BAN
